@@ -5,6 +5,6 @@
 
 ------------------------  
 
-- Lupe Fiasco & Guy Sebastian
-    - Battle Scars
+- Guy Sebastian
+    - Battle Scars (feat. Lupe Fiasco)
 
