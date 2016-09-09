@@ -5,5 +5,6 @@
 
 ------------------------  
 
-
+- Lupe Fiasco & Guy Sebastian
+    - Battle Scars
 
