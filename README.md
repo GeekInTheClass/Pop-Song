@@ -5,6 +5,10 @@
 
 ------------------------  
 
+- Coldplay
+    - Up&Up
+    - Viva La Vida
+
 - Guy Sebastian
     - Battle Scars (feat. Lupe Fiasco)
 
