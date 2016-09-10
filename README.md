@@ -8,3 +8,8 @@
 - Guy Sebastian
     - Battle Scars (feat. Lupe Fiasco)
 
+- Sam Smith
+    - I'm Not The Only One
+
+- Tata Young
+    - My Bloody Valentine
